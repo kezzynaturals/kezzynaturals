@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Kezzy
-- 👀 I’m interested in business and psychology
+- 👀 I’m interested in business, psychology, cooking, hair-care, parenting, animals, photography and forex trading.
 - 🌱 I’m currently learning Business Intelligence and Data Analytics
 - 💞️ I’m looking to collaborate on Data Analyst projects
 - 📫 How to reach me kezzynaturals@gmail.com
